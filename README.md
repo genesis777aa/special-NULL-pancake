@@ -1,5 +1,4 @@
->> Did you know... 95% of 'modern' high-scoring papers/published studies/researches/ect etc etc ETC is ~like~ RUBBish that 🦾kernel⚙️ needs to process, anyways, so let's just rushRushRUSH-constRUSH to make sure to get SC out of constant neural arousal (=stress? or is just meTheDRAMAkng??? </> PRiiivateCONtentWEBHOOK! 💥😉🖕) and then goooooo #error953887398628657826785678672658768726576278658 PAAAAANNNNNNick bck this really makes so muCH SSSSSEEnce 🎃🔨
-##
-[[<https://drive.google.com/file/d/1oW5PZUJkEFnj3q94XYU7IeTQhzGa4FmF/view?usp=sharing]]
+>> lkfhkjhdjcah,jwnrgfjhfyhbjnhcuehjdkuj358hr76jilf8hy58urhiek479pvy5eijt5uefklsdalcizrokrNKIi465fi7vuhjfktu4sjktyfdhckjsurzfgnmguf45735w5e6475869789vt5s4etrydtuyrerwfs∂
+/1oW5PZUJkEFnj3q94XYU7IeTQhzGa4FmF/view?usp=sharing]]
 ###
-<🛒🥸·🧷·🅱️🖲️>
+<🧶·🖲️>
